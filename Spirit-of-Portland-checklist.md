@@ -1,4 +1,4 @@
-# Things to do to make wherever you are feel more like Portland
+# Things to do to make anywhere feel more like Portland
 ## Places to go
 * Spend more than 2 hours in a coffee shop that isn't Starbucks; go to a different coffee shop afterward.
 * Sell 3-5 items at a used goods store, then shop there on that budget.
