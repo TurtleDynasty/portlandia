@@ -16,6 +16,7 @@
 * Play in a one-day-only friends & family garage band; record one song and publish it on a blog.
 * Pickle a vegetable.
 * Make a work of art out of things around the house or outside.
+* Listen to two music albums published in the 90s.
 
 ## Online
 * Sign a petition on change.org, petitions.whitehouse.gov, or a similar site.
