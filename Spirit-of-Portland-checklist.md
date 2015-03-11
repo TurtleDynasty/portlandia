@@ -1,16 +1,19 @@
-# Things to do to make anywhere feel more like Portland
+# To make anywhere feel more like Portland
 ## Places to go
-* Spend more than 2 hours in a coffee shop that isn't Starbucks; go to a different coffee shop afterward.
-* Sell 3-5 items at a used goods store, then shop there on that budget.
-* Eat a lunch and dinner at your most Polrtland restaurants (in Flagstaff: Macy's Cafe, Pizzicleta).
-* Find an underground band at a local venue and cheer for them.
+* Sell 3-5 items at a used goods store, then shop there on the money you got.
+* See an underground band play at a local venue.
 * Complete a grocery shopping trip at a farmers' market and/or on a bike.
 
+## Food & Drink
+* Spend more than 2 hours in a coffee/tea bar that isn't Starbucks; go to a different one afterward.
+* Eat a lunch and dinner at your most Polrtland restaurants (in Flagstaff: Macy's Cafe, Pizzicleta).
+* Sample three beers you've never had before; if possible, from a trendy bar you've never been to.
+
 ## Out in public
-* Ask to take a photo with somebody's pet in public; post photo with the hash tag ‪#civilrights‬
+* Ask to take a photo with somebody's pet in public; post photo with the hash tag ‪#civilrights or #furcitizen.
 * Talk to a stranger at a music store; try to get them to use a specific word in a sentence.
-* Try three beers you've never had before, if possible, from a trendy bar you've never been to.
 * Participate in a protest, maybe even one that you organize.
+* Play a game of Billiards, Bowling, or Darts.
 
 ## From home
 * Play in a one-day-only friends & family garage band; record one song and publish it on a blog.
