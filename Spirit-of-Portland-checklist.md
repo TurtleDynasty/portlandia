@@ -19,7 +19,7 @@
   * If the target uses the word, the player who was challenged earns a point.
 * Participate in a protest, maybe even one that you organize.
 * Play a game of Billiards, Bowling, or Darts.
-* Play a game of hide-n-go-seek in a public place.
+* Play a game of hide-n-go-seek or laser tag in a public place.
 
 ## From home
 * Play in a one-day-only friends & family garage band; record one song and publish it on a blog.
